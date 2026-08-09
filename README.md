@@ -1,2 +1,2 @@
-# Educaci-n-financiera-
+# Educación-financiera-
 Finanzas
